@@ -1,3 +1,5 @@
+[< Back to Home](../)
+
 # Art References
 Links to all the unofficial character art I used in my [Genshin Character Tier List video](https://youtu.be/B5tf63YGUDQ)
 
